@@ -213,4 +213,4 @@ ChiliBurner is offered as a **full free version** with all features and updates 
 Don't miss out on the convenience of ChiliBurner. **Download your free copy today** and start creating your optical discs with ease!
 
 ---
-**Last updated:** 2026-09-25 17:41:53 UTC
+**Last updated:** 2026-09-25 20:58:01 UTC
